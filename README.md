@@ -1,2 +1,2 @@
 ## About Klinol
-Discover more about our [eco-friendly dish wash in Mumbai](https://klinolindia.com/dish-wash-liquid-in-mumbai/).
+Discover more about our [best plant based dishwashing gel](https://klinolindia.com/best-plant-based-dishwashing-gel/)).
